@@ -100,4 +100,4 @@ Changes will be reflected by updating the date at the top of this page.
 
 For support or privacy-related questions:
 
-Email: krunislavmishkov244@gmail.com
+Email: kruniapps@gmai.com
